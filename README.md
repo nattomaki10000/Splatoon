@@ -1,1 +1,2 @@
 # Splatoon
+Thank you FunnyAnimatorJimTV
